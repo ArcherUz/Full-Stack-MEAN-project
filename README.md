@@ -1,0 +1,1 @@
+https://www.youtube.com/watch?v=ngc9gnGgUdA&t=972s&ab_channel=JavaScriptMastery
